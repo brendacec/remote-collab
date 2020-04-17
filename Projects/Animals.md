@@ -8,6 +8,7 @@ Follow [this tutorial](../Tutorials/Animals.md) to add your favorite (adorable) 
 
 - [Cats](#cats)
 - [Cows](#cows)
+- [Dogs](#dogs)
 - [Elephants](#elephants)
 - [Goats](#goats)
 - [Horses](#horses)
@@ -31,6 +32,24 @@ Girl, put your records on.
 ![Cow kiss](https://media.giphy.com/media/kdicjggNCgM10dtqvO/giphy.gif) 
 
 He just wants to give a biiiiig kiss.
+
+## Dogs
+
+![Hello](https://media2.giphy.com/media/RAfEKtWqmgHrG/source.gif) 
+
+"Hello Human! I love you!" 
+
+---
+
+![Superdog](https://i.imgur.com/9pXTSnI.gif)
+
+Quarantine workout
+
+---
+
+![he brush](https://thumbs.gfycat.com/LazyWiltedAsianporcupine-size_restricted.gif)
+
+happy boi!!! 
 
 ## Elephants
 
